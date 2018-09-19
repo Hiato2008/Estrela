@@ -1,0 +1,2 @@
+# Estrela
+irradia luz própria
